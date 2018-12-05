@@ -8,5 +8,4 @@
 school group work what I did the most part except the art  
 just update to save project  
 maybe someday I will improve this project  
-if there something 
 Please advise to remove immediately if any infringement caused.
