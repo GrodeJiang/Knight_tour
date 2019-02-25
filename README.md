@@ -5,9 +5,9 @@
 由於素材是同學弄來的，可能會有些版權問題。
 若有侵犯，告知後會删除。  
 
-*介面是以我手機為主，因此其它手機介面可能會跑掉
+*介面是以我手機(HTC M9)為主，因此其它手機介面可能會跑掉
 
-school group work what I did the most part except the art  
+school group work that I did the most part except the art  
 just update to save project  
 maybe someday I will improve this project  
 Please advise to remove immediately if any infringement caused.
